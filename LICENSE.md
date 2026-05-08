@@ -1,4 +1,4 @@
-
+Get the ultimate Things 3 for macOS plugin with Things 3 for macOS rare Plugin: widgets & reminders. Featuring widgets and reminders, it's the best choice for macOS users.
 
 
 
